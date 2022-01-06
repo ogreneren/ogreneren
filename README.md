@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ogreneren
+- 👀 I’m interested in Basketball and Computer staff
+- 🌱 I’m currently studying Software Engineering
+- 📫 How to reach me erenogren2003@gmail.com
